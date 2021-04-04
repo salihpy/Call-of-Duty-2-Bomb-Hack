@@ -1,5 +1,5 @@
 
-<h1> Call Of Duty 2 bombs and smoke Cheats </h1>
+<h1> Call Of Duty 2 bombs and smoke Cheats [ Does not work on some tasks ] </h1>
 
 <b> Bomb and smoke trick for Call Of Duty 2, one of the legendary games of history <b>
   
